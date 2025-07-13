@@ -1,4 +1,1 @@
-# MEDIA-KIT
-Logo, Templates, Covers, Headers... All you need to speak of Bismuth, the crypto currency.
-
-http://bismuth.cz
+I am an expert in graphic design, specializing in logo design, certificate design, and banner creation. With a strong eye for detail and creativity, I craft unique and professional visuals that make a lasting impact. Whether you need a striking logo to represent your brand, a well-designed certificate for recognition, or an eye-catching banner for promotions, I ensure high-quality designs tailored to your needs. My work combines innovation with precision, turning ideas into powerful visuals that communicate effectively. If you’re looking for top-tier designs that stand out, I’m here to bring your vision to life."INBOX NOW 
